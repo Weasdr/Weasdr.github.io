@@ -1,1 +1,1 @@
-# logangaming1.github.io
+# GO follow RMh and lordlongnose
