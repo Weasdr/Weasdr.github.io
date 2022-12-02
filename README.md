@@ -1,4 +1,1 @@
-# Daily inspirational quotes
-# It is never too late to be what you might have been.
-
-# Daily inspirational quotes are gotten from a website
+#237a05b5-810d-4267-bece-1381da2d0efe.id.repl.co
